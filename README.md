@@ -4,4 +4,4 @@
 
 
 
-This file is husaband od aparna garu
+This file is husaband of aparna garu
